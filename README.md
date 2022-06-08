@@ -4,4 +4,4 @@
 
 
 -Discord - 화이트홀미만잡#6229
--Telegram - (여기)[https://t.me/whitehole0906]
+-Telegram - [텔그][https://t.me/whitehole0906]
