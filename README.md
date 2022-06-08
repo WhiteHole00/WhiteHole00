@@ -6,4 +6,4 @@
 - Discord - 화이트홀미만잡#6229
 
 
-텔레그램 : [텔그][https://t.me/whitehole0906]
+텔레그램 : [텔레그램](https://t.me/whitehole0906)
